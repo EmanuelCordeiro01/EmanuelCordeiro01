@@ -10,6 +10,6 @@ Meu nome é Emanuel Cordeiro
 
 emanuelcordeiro1536@gmail.com
 
-@EmanuelCorderio01
+@EmanuelCordeiro01
 
 ![](https://media1.tenor.com/m/0mYIKXmzR7wAAAAC/war.gif)
